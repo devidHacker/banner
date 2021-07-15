@@ -1,6 +1,0 @@
-from pip indshfhsjdfhjashdf
-adsfajsdflkj
-dsjflkjasdklf
-sdjflkjasdlkjf
-sdflksjdlkf
-sdlkjflkjs
